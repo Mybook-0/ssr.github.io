@@ -3,11 +3,15 @@
 
 <a href="https://www.freeclashnode.com/client/clash-for-windows-getting-started-tutorial.htm">基本入门教程</a>
 
-##机场订阅推荐
+##  机场订阅推荐
+
+## 注意：如果你发现复制订阅地址下载失败请将开头的'https'改成'http'再尝试
 
 ### 高速机场推荐2【<a href="https://jpcdn.ts2025.top/register?code=BjqKj8iW" target="_blank">泰山加速(性价比高</a>】
+<img width="1606" height="836" alt="2" src="https://github.com/user-attachments/assets/65fd3968-2c73-4ce7-ad97-2d27642f4a04" />
 
-### 高速机场推荐2【<a href="https://jpcdn.ts2025.top/register?code=BjqKj8iW" target="_blank">panndes.com加速(最低3元5g</a>】
+### 高速机场推荐2【<a href="https://www.tpanode07.top/index.php#/register?code=0bGlCTHs" target="_blank">panndes.com加速(最低3元5g</a>】
+<img width="1208" height="881" alt="1" src="https://github.com/user-attachments/assets/58b9be0c-541c-4da1-8d56-d0d8bdf5feb7" />
 
 有新的会继续更
 
