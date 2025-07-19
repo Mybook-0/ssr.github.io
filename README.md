@@ -10,7 +10,7 @@
 ### 高速机场推荐1【<a href="https://jpcdn.ts2025.top/register?code=BjqKj8iW" target="_blank">泰山加速(性价比高</a>】
 <img width="1606" height="836" alt="2" src="https://github.com/user-attachments/assets/65fd3968-2c73-4ce7-ad97-2d27642f4a04" />
 
-### 高速机场推荐2【<a href="https://vgvg.vg#/register?code=LL8e6l9E" target="_blank">一元机场(性价比超高</a>】
+### 高速机场推荐2【<a href="https://vgvg.vg#/register?code=LL8e6l9E" target="_blank">一元机场(有传家宝但是随时跑路</a>】
 <img width="1145" height="875" alt="离谱" src="https://github.com/user-attachments/assets/0f653d3f-f69e-41a4-912c-c8969e318f2e" />
 
 
