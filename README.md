@@ -7,11 +7,12 @@
 
 ## 注意：如果你发现复制订阅地址下载失败请将开头的'https'改成'http'再尝试
 
-### 高速机场推荐2【<a href="https://jpcdn.ts2025.top/register?code=BjqKj8iW" target="_blank">泰山加速(性价比高</a>】
+### 高速机场推荐1【<a href="https://jpcdn.ts2025.top/register?code=BjqKj8iW" target="_blank">泰山加速(性价比高</a>】
 <img width="1606" height="836" alt="2" src="https://github.com/user-attachments/assets/65fd3968-2c73-4ce7-ad97-2d27642f4a04" />
 
-### 高速机场推荐2【<a href="https://www.tpanode07.top/index.php#/register?code=0bGlCTHs" target="_blank">panndes.com加速(最低3元5g</a>】
-<img width="1208" height="881" alt="1" src="https://github.com/user-attachments/assets/58b9be0c-541c-4da1-8d56-d0d8bdf5feb7" />
+### 高速机场推荐2【<a href="https://vgvg.vg#/register?code=LL8e6l9E" target="_blank">一元机场(性价比超高</a>】
+<img width="1145" height="875" alt="离谱" src="https://github.com/user-attachments/assets/0f653d3f-f69e-41a4-912c-c8969e318f2e" />
+
 
 有新的会继续更
 
