@@ -1,1 +1,1 @@
-hello
+详情看index
